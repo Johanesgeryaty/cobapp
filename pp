@@ -1,2 +1,2 @@
-aku adalah johanes
+aku adalah lukman
 
