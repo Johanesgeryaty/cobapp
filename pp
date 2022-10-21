@@ -1,2 +1,2 @@
-aku adalah lukman
+aku adalah luqman
 
